@@ -54,8 +54,9 @@ OBJETIVOS ESPECIFICOS CAPITULO 8
 ![Captura de pantalla 2022-06-30 215956](https://user-images.githubusercontent.com/105680816/176815030-823e4249-75f9-41df-9b04-2bc5354c0f3a.png)
 ![Captura de pantalla 2022-06-30 215942](https://user-images.githubusercontent.com/105680816/176815032-56c90ded-084e-4253-81ef-e3dc42161fce.png)
 ![Captura de pantalla 2022-06-30 215925](https://user-images.githubusercontent.com/105680816/176815034-f7d2c8bc-b903-419e-be9e-252d7f594c9d.png)
+                                                 
                                                   3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
-                                                                      4. VIDEO
+                                                                       4. VIDEO
 
 
 
