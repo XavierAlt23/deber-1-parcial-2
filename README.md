@@ -101,8 +101,6 @@ OBJETIVOS ESPECIFICOS CAPITULO 8
 ![2022-06-30 (42)](https://user-images.githubusercontent.com/105680816/176826414-008c1a0c-aff7-470b-b5f9-5bacf56247bc.png)
 ![2022-06-30 (43)](https://user-images.githubusercontent.com/105680816/176826420-ef77fbd8-6021-42b5-a551-9cb1872631a5.png)
 
-
-
                                                                        4. VIDEO
 
 
